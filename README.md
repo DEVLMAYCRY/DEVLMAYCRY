@@ -1,7 +1,7 @@
 ![](https://hit.yhype.me/github/profile?account_id=209225813)
 ⠀<div align="center">
 </div> <div align="center"> hermes, frank or b͟i͟r͟kin</div>
- </div> <div align="center">I sit at spawn / bakery / comic area with my friends</div>
+ </div> <div align="center">I sit at spawn / bakery / comic area with my <a href="enterlink">friends</div>
  
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 🐾 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
