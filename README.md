@@ -1,7 +1,7 @@
 ![](https://hit.yhype.me/github/profile?account_id=209225813)
 ⠀<div align="center">
 </div> <div align="center"> hermes, frank or b͟i͟r͟kin</div>
- </div> <div align="center">I sit at spawn / bakery / comic area with my <a href="enterlink">friends</div>
+ </div> <div align="center">I sit at spawn / bakery / comic area with my <a href="workinprogress">friends</div>
  
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 🐾 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
@@ -19,7 +19,7 @@
 </div> <div align="center"> 𝟎𝟐 ﹒𝐬𝐡𝐢𝐩𝐬: 𝗳𝗿𝗮𝘁𝘁 (punisher x daredevil), 𝗹𝘂𝗻𝗮𝗿 𝗷𝘂𝘀𝘁𝗶𝗰𝗲/𝗺𝗼𝗼𝗻𝗶𝘀𝗵𝗲𝗿 (moon knight x punisher), kastle, 
 </div> <div align="center">ironstrange, strangemor, quillock, thorquill, 𝘄𝗶𝗻𝘁𝗲𝗿𝗵𝗮𝘄𝗸, devilmoon, moonblade, 
 </div> <div align="center">mattfoggy, mattfranklektra, spiderfist, spidertorch, warloki (+ more)</div>
-</div> <div align="center"> 𝟎𝟑 ﹒𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬: strange, daredevil, the punisher, moon knight, hawkeye, raiden. (+ more)</div>
+</div> <div align="center"> 𝟎𝟑 ﹒𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬: strange, daredevil, 𝘁𝗵𝗲 𝗽𝘂𝗻𝗶𝘀𝗵𝗲𝗿, moon knight, 𝗵𝗮𝘄𝗸𝗲𝘆𝗲, raiden. (+ more)</div>
 ‎ 
        </div><div align="center"> ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏</div>
        <div align="center">
