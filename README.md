@@ -18,7 +18,7 @@
 </div> <div align="center">devil may cry, cyberpunk 2077, the bear, homestuck, greek mythology, comics, marvel, dungeons & dragons.</div>
 </div> <div align="center"> 𝟎𝟐 ﹒𝐬𝐡𝐢𝐩𝐬: 𝗳𝗿𝗮𝘁𝘁 (punisher x daredevil), 𝗹𝘂𝗻𝗮𝗿 𝗷𝘂𝘀𝘁𝗶𝗰𝗲/𝗺𝗼𝗼𝗻𝗶𝘀𝗵𝗲𝗿 (moon knight x punisher), kastle, 
 </div> <div align="center">ironstrange, strangemor, quillock, thorquill, 𝘄𝗶𝗻𝘁𝗲𝗿𝗵𝗮𝘄𝗸, devilmoon, moonblade, 
-</div> <div align="center">mattfoggy, mattfranklektra, spiderfist, spidertorch, warloki (+ more)</div>
+</div> <div align="center">mattfoggy, mattfranklektra, spiderfist, spidertorch, warloki, frankmicro (+ more)</div>
 </div> <div align="center"> 𝟎𝟑 ﹒𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬: strange, daredevil, 𝘁𝗵𝗲 𝗽𝘂𝗻𝗶𝘀𝗵𝗲𝗿, moon knight, 𝗵𝗮𝘄𝗸𝗲𝘆𝗲, raiden. (+ more)</div>
 ‎ 
        </div><div align="center"> ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏</div>
