@@ -15,11 +15,11 @@
         </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a>
 	</div> <div align="center"><a href="https://rentry.co/dvlmaycry">rentry</a> ★ <a href="https://dvlmaycry.atabook.org/">atabook</a></a> </div> </div> <div align="center">・・・・・ </div>
   </div> <div align="center">𝟎𝟏 ﹒𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬: resident evil, fallout (especially new vegas), metal gear, dead by daylight, hatred, postal, </div>
-</div> <div align="center">devil may cry, cyberpunk 2077, the bear, homestuck, greek mythology, comics, marvel, dungeons & dragons.</div>
+</div> <div align="center">devil may cry, cyberpunk 2077, the bear, homestuck, greek mythology, comics, marvel, dungeons & dragons, doctor who.</div>
 </div> <div align="center"> 𝟎𝟐 ﹒𝐬𝐡𝐢𝐩𝐬: 𝗳𝗿𝗮𝘁𝘁 (punisher x daredevil), 𝗹𝘂𝗻𝗮𝗿 𝗷𝘂𝘀𝘁𝗶𝗰𝗲/𝗺𝗼𝗼𝗻𝗶𝘀𝗵𝗲𝗿 (moon knight x punisher), kastle, 
 </div> <div align="center">ironstrange, strangemor, quillock, thorquill, 𝘄𝗶𝗻𝘁𝗲𝗿𝗵𝗮𝘄𝗸, devilmoon, moonblade, 
 </div> <div align="center">mattfoggy, mattfranklektra, spiderfist, spidertorch, warloki, frankmicro (+ more)</div>
-</div> <div align="center"> 𝟎𝟑 ﹒𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬: strange, daredevil, 𝘁𝗵𝗲 𝗽𝘂𝗻𝗶𝘀𝗵𝗲𝗿, moon knight, 𝗵𝗮𝘄𝗸𝗲𝘆𝗲, raiden. (+ more)</div>
+</div> <div align="center"> 𝟎𝟑 ﹒𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫𝐬: strange, daredevil, 𝘁𝗵𝗲 𝗽𝘂𝗻𝗶𝘀𝗵𝗲𝗿, moon knight, 𝗵𝗮𝘄𝗸𝗲𝘆𝗲, raiden, 10th doctor. (+ more)</div>
 ‎ 
        </div><div align="center"> ✎﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏</div>
        <div align="center">
