@@ -5,11 +5,11 @@
  
    </div> <div align="center">┍━━━━━━━━━━━━━━━━━━━━━━━»•» 🐾 «•«━┑</div>
    </div> <div align="center"> 𝗗𝗡𝗜 𝗶𝗳:</div>
-    </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; HH/HB, DSMP, COD, ranfren and okegom fandom,</div>
+    </div> <div align="center"> <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>; ranfren, TCOAAL (u guys suck) and okegom fandom,</div>
     </div> <div align="center"> n*zis, reality checkers (if you are not a friend), roleplayers</div>
      </div> <div align="center">rude people, makes fun of kinning or coping mechanisms</div>
      </div> <div align="center">endo/tulpa "systems", drama starters ... </div>
-    </div> <div align="center"> 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, 𝗵𝗼𝘆𝗼𝘃𝗲𝗿𝘀𝗲 𝗲𝗻𝗷𝗼𝘆𝗲𝗿𝘀 𝗮𝗻𝗱 𝗵𝗼𝗺𝗲𝘀𝘁𝘂𝗰𝗸 𝗳𝗮𝗻𝗱𝗼𝗺 </div>
+    </div> <div align="center"> 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, 𝗵𝗮𝘇𝗯𝗶𝗻, 𝗵𝗼𝘆𝗼𝘃𝗲𝗿𝘀𝗲 𝗲𝗻𝗷𝗼𝘆𝗲𝗿𝘀 𝗮𝗻𝗱 𝗵𝗼𝗺𝗲𝘀𝘁𝘂𝗰𝗸 𝗳𝗮𝗻𝗱𝗼𝗺 </div>
      </div> <div align="center">𝗮𝗿𝗲 𝘁͟𝗵͟𝗶͟𝗻͟ 𝗶𝗰𝗲 !!</div>
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
         </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a>
