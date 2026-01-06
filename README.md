@@ -14,6 +14,7 @@
     </div><div align="center"> ┕━»•» 🐾 «•«━━━━━━━━━━━━━━━━━━━━━━━┙</div>
         </div> <div align="center"> <a href="https://21gunz.straw.page/">strawpage</a>
 	</div> <div align="center"><a href="https://rentry.co/dvlmaycry">rentry</a> ★ <a href="https://dvlmaycry.atabook.org/">atabook</a></a> </div> </div> <div align="center">・・・・・ </div>
+	  </div> <div align="center">𝙘𝙪𝙧𝙧𝙚𝙣𝙩𝙡𝙮 𝙝𝙞𝙥𝙚𝙧𝙛𝙞𝙭𝙖𝙩𝙚𝙙 𝙤𝙣: 𝙉𝙤, 𝙄'𝙢 𝙉𝙤𝙩 𝙖 𝙃𝙪𝙢𝙖𝙣 . </div>
   </div> <div align="center">𝟎𝟏 ﹒𝐜𝐮𝐫𝐫𝐞𝐧𝐭 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬: resident evil, fallout (especially new vegas), metal gear, dead by daylight, hatred, postal, </div>
 </div> <div align="center">devil may cry, cyberpunk 2077, the bear, homestuck, greek mythology, comics,</div>
 	</div> <div align="center">marvel, dungeons & dragons, doctor who.</div>
